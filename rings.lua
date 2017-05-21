@@ -2,9 +2,9 @@
 
 #Ring Meters by londonali1010 (2009)  
 
-Edited for * by ~Lovelybacon (2013)
+Edited for * by ~Lovelybacon (2013) 
 
-Edited again by Kexolino
+Edited again by Kexolino and edit again by me
 
 ]]
 
